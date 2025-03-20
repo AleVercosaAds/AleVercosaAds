@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AleVercosa
-- 👀 I’m interested in musica,
+- 👀 I’m interested in learn more every day;
 - 🌱 I’m currently learning Java, phyton, and news technologies.
 - 💞️ I’m looking to collaborate on on systems development-
 - 📫 How to reach me whatsapp 81994139043 or email alessandra_vercosa9816al@hotmail.com;
